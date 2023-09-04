@@ -1,3 +1,6 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2500&color=60A6FB&lines=%3E%3E%3E+Welcome+to+my+profile+%F0%9F%91%8B!)](https://git.io/typing-svg)
+
+
 ### Barka👋
 
 <!--
